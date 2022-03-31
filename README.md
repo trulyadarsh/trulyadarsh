@@ -1,0 +1,9 @@
+- 👋 Hi, I’m [@trulyadarsh](https://direct.me/trulyadarsh)
+- 👀 I’m Learner by education | Human by profession | Entrepreneur by Hobby | Space Explorer by intrest ....
+- 💞️ I’m help people around me and connected with me ....
+- 📫 How to reach me via any of my official verified social media with [@trulyadarsh](https://direct.me/trulyadarsh) as a username ....
+
+<!---
+trulyadarsh/trulyadarsh is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
